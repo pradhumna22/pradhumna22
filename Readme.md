@@ -1,7 +1,6 @@
 <h1 align="center">Hi 👋, I'm Pradhumna Banerji</h1>
 <h3 align="center">I'm a Student,Open Source Enthusiast, Competetive Programer and a Develope!</h3>
 
-<p align="left"> <img src="https://komarev.com/ghpvc/?username=pradhumna22&label=Profile%20views&color=0e75b6&style=flat" alt="pradhumna22" /> </p>
 
 <p align="left"> <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=pradhumna22" alt="pradhumna22" /></a> </p>
 
