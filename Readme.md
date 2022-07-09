@@ -11,7 +11,7 @@
 
 - 📝 I iregularly write articles on [https://www.tumblr.com/blog/onestepmoretotgoal](https://www.tumblr.com/blog/onestepmoretotgoal)
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/18z6RQ1YVjOxU0RzoNXHVAK9QnB6H30iH/view?usp=sharing](https://drive.google.com/file/d/18z6RQ1YVjOxU0RzoNXHVAK9QnB6H30iH/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1gXedVl_gR6U-qz8ieONbbkbboRTYMzAB/view?usp=sharing](https://drive.google.com/file/d/1gXedVl_gR6U-qz8ieONbbkbboRTYMzAB/view?usp=sharing)
 
 - ⚡ Fun fact **I love play football / and video games(Personal fav -Fifa)**
 
